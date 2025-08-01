@@ -1,1 +1,1 @@
-# Mawaz-MIrza.github
+# Mawaz-Mirza.github
